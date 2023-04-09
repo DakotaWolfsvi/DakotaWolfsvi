@@ -12,7 +12,7 @@ My Weirdling Video Game Interests:
 
 🌙 Pokemon (UNITE)
 
-🐾 Fortnite...
+ 🐾 Fortnite...
 
 🌙 Splatoon
 
@@ -22,5 +22,12 @@ I'll Be Fr, I'm Indefinitely Betting No One Expected A ***Tomboy Furry*** To Pla
 
 I Also Might Be Soundin' Like An Entirely Different Person Appart From My Other Github Or Patreon. ...Yeah I Rushed This, But I Kinda Wanted Y'all To Understand How I Usually Would Tone As In Real Life Or In General.
 
-<img src="https://ih1.redbubble.net/image.4878907903.8825/st,small,507x507-pad,600x600,f8f8f8.jpg" alt="PACK LEADER HIGHWIRE Sticker by JSpookyWolf"/>![image](https://user-images.githubusercontent.com/129853003/230796609-7dc989c2-e998-4e15-b7a6-8e68136ef465.png)
+> 🌙 ***Fortnite*** 🌙
 
+![tumblr_783085cb46d27e0191b05b52318d0c84_8c19f16f_128](https://user-images.githubusercontent.com/129853003/230796680-81b76f5c-44a4-4a75-a30b-54ec15954335.jpg)
+
+To Be Honest, Since I'm Insane Enough, I'll Post My Fortnite User Here: Dakota Wolfsvi
+
+I Literally Took 5 Years Just To Link My Shit To My Epic Games Account. I Wasted All Of My Progress On My Nintendo Switch **Only To Restart Over**.
+
+On The Plus Side, I Got The Chapter 4 Season 2 Battle Pass With Highwire In It, So Who Cares.
