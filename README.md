@@ -4,19 +4,21 @@ ugh, you sweats are such **sweats**, hholu shit
 
 Anyways, Heya There, I'm Wolfsvi. Or-- You May Recognize Me More As Kittspi / Kitters / Zera(ora). If You Don't Know Me Check Out www.patreon.com/kittspi Real Quick.
 
-You Might Be Wondering: "Why The **Fuck** Does Kitt(spi) Have A whole Other Github Tag?" ...Good Question.
+> "Why The **Fuck** Does Kitt(spi) Have A Whole Other Github Tag?"
+
+ ...Good Question.
 
 Answering That, I Made This Alernative To Separate Info About What I Do On Certain Skins. I Have **Most** Of My Originals, (Other Github and Patreon) On Most Of My Pokemon Skins And ONLY Pokemon Skins. But This One's To Resemble The Gamer I Am.
 
 My Weirdling Video Game Interests:
 
-🌙 Pokemon (UNITE)
+🌙 :Pokemon (UNITE)
 
- 🐾 Fortnite...
+🐾 :Fortnite...
 
-🌙 Splatoon
+🌙 :Splatoon
 
-🐾 Super Smash Bros.
+🐾 :Super Smash Bros.
 
 I'll Be Fr, I'm Indefinitely Betting No One Expected A ***Tomboy Furry*** To Play-- Of All Games-- Fortnite.
 
