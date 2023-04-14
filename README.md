@@ -1,4 +1,4 @@
-ugh you sweats are such **sweats** what the fuck
+holy shit bots are actually in fortnite real 
 
 Anyways, Heya There, I'm Wolfsvi. Or-- You May Recognize Me More As Kittspi / Kitters / Zera(ora). If You Don't Know Me Check Out www.patreon.com/kittspi Real Quick. I Also Might Be Soundin' Like An Entirely Different Person Appart From My Other Github Or Patreon. ...Yeah I Rushed This, But I Kinda Wanted Y'all To Understand How I Usually Would Tone As In Real Life Or In General. Please Check My Patreon If You Want To See A Calmer, More Mature Version Of Me.
 
