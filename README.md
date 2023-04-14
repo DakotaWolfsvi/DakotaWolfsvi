@@ -44,4 +44,5 @@ In- game, I Main Zeraora And Zoroark.
 
 ![3ani__807__uu](https://user-images.githubusercontent.com/129853003/230797717-36b8f1e3-6b49-4046-ad7b-25d37b5c1e07.gif) ![3ani__571__xy](https://user-images.githubusercontent.com/129853003/230797719-3a36427b-792b-404a-ba4b-2eec255b973a.gif)
 
-
+-------
+(I'm Too Lazy To Finish The Rest Of This, But I'll Sound Positive For Once And Say That You Readers Should Have a Good Day/Night :thumbsup:)
