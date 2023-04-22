@@ -8,7 +8,7 @@ I'm Not Like Those Fuckin' Extreme And Selfish GitHub Taggers, I Swear.
 
  ...Good Question.
 
-Answering That, I Made This Alernative To Separate Info About What I Do On Certain Skins. I Have **Most** Of My Originals, (Other Github and Patreon) On Most Of My Pokemon Skins And ONLY Pokemon Skins. But This One's To Resemble The Gamer I Am.
+Answering That Million Dollar Question, I Made This Alernative To Separate Info About What I Do On Certain Skins. I Have **Most** Of My Originals, (Other Github and Patreon) On Most Of My Pokemon Skins And ONLY Pokemon Skins. But This One's To Resemble The Gamer I Am.
 
 ------
 
